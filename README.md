@@ -1,1 +1,1 @@
-Me dá 10 or favor Edu
+Me dá 10 por favor Edu
